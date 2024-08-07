@@ -1,4 +1,4 @@
-## Bem vindo 🖤😻
+## Bem vindo 🖤😻🦝
 
 O meu nome é Lorena
 
